@@ -73,7 +73,7 @@ https://YOUR-LINKEDIN-LINK
 https://www.dailymotion.com/parvatisinghfoods
 
 📝 Medium
-[https://medium.com/@parvatisinghfoods
+https://medium.com/@parvatisinghfoods
 
 ❓ Quora
 https://www.quora.com/Parvati-Singh-Foods
