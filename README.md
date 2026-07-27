@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="logo.png" alt="Parvati Singh Foods Logo" width="180">
+  <img src="logo.jpg" alt="Parvati Singh Foods Logo" width="180">
 </p>
 
 <h1 align="center">🍽️ Parvati Singh Foods</h1>
