@@ -75,6 +75,9 @@ https://www.dailymotion.com/parvatisinghfoods
 📝 Medium
 https://medium.com/@parvatisinghfoods
 
+@ Threads
+https://www.threads.com/@parvatisinghfoods
+
 ❓ Quora
 https://www.quora.com/Parvati-Singh-Foods
 
