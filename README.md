@@ -63,7 +63,7 @@ https://www.facebook.com/parvatisinghfoods
 https://www.instagram.com/parvatisinghfoods
 
 📌 Pinterest
-https://YOUR-PINTEREST-LINK
+https://pinterest.com/parvatisinghfoods
 
 💼 LinkedIn
 
