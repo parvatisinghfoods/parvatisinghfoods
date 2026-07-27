@@ -63,32 +63,29 @@ https://www.facebook.com/parvatisinghfoods
 https://www.instagram.com/parvatisinghfoods
 
 📌 Pinterest
-
 https://YOUR-PINTEREST-LINK
 
 💼 LinkedIn
 
 https://YOUR-LINKEDIN-LINK
 
-📝 Medium
+🎬Dailymotion
+https://www.dailymotion.com/parvatisinghfoods
 
-https://YOUR-MEDIUM-LINK
+📝 Medium
+[https://medium.com/@parvatisinghfoods
 
 ❓ Quora
-
-https://YOUR-QUORA-LINK
+https://www.quora.com/Parvati-Singh-Foods
 
 🎨 Tumblr
-
-https://YOUR-TUMBLR-LINK
+https://www.tumblr.com/parvatisinghfoods
 
 🌍 About.me
-
-https://YOUR-ABOUTME-LINK
+https://about.me/parvatisinghfoods
 
 🔗 Linktree
-
-https://YOUR-LINKTREE-LINK
+https://linktr.ee/parvatisinghfoods
 
 ---
 
