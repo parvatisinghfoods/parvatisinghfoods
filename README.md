@@ -66,8 +66,7 @@ https://www.instagram.com/parvatisinghfoods
 https://pinterest.com/parvatisinghfoods
 
 💼 LinkedIn
-
-https://YOUR-LINKEDIN-LINK
+https://www.linkedin.com/company/parvatisinghfoods
 
 🎬Dailymotion
 https://www.dailymotion.com/parvatisinghfoods
