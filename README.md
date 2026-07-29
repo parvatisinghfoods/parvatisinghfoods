@@ -89,6 +89,9 @@ https://about.me/parvatisinghfoods
 🔗 Linktree
 https://linktr.ee/parvatisinghfoods
 
+❎ X
+https://x.com/Parvatifoodz
+
 ---
 
 # 🔥 Brand Keywords
