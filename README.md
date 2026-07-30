@@ -92,6 +92,18 @@ https://linktr.ee/parvatisinghfoods
 ❎ X
 https://x.com/Parvatifoodz
 
+Gitlab
+https://gitlab.com/parvatisinghfoods
+
+Codepen
+https://codepen.io/Parvati-Singh-Foods
+
+Mastodon
+https://mastodon.social/@parvatisinghfoods
+
+Gravatar
+https://gravatar.com/parvatisinghfoods
+
 ---
 
 # 🔥 Brand Keywords
