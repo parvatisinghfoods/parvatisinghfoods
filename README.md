@@ -104,6 +104,9 @@ https://mastodon.social/@parvatisinghfoods
 Gravatar
 https://gravatar.com/parvatisinghfoods
 
+Vimeo
+https://vimeo.com/parvatisinghfoods
+
 ---
 
 # 🔥 Brand Keywords
