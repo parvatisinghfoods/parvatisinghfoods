@@ -117,7 +117,10 @@ Discord
 https://discord.com/users/1532324690607997008    
 
 Substack
-https://substack.com/@parvatisinghfoods
+https://substack.com/@parvatisinghfoods   
+
+Bluesky
+https://parvatisinghfoods.bsky.social/
 
 ---
 
