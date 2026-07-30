@@ -123,7 +123,10 @@ Bluesky
 https://parvatisinghfoods.bsky.social           
 
 Disqus
-https://disqus.com/by/parvatisinghfoods/
+https://disqus.com/by/parvatisinghfoods   
+
+Daily dev
+https://daily.dev/parvatisinghfoods
 
 ---
 
