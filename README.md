@@ -107,6 +107,15 @@ https://gravatar.com/parvatisinghfoods
 Vimeo
 https://vimeo.com/parvatisinghfoods
 
+Wordpress
+https://parvatisinghfoods.wordpress.com
+
+Flipboard
+https://flipboard.com/@Parvatifoodz
+
+Discord
+https://discord.com/users/1532324690607997008
+
 ---
 
 # 🔥 Brand Keywords
