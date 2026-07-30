@@ -120,7 +120,10 @@ Substack
 https://substack.com/@parvatisinghfoods   
 
 Bluesky
-https://parvatisinghfoods.bsky.social/
+https://parvatisinghfoods.bsky.social           
+
+Disqus
+https://disqus.com/by/parvatisinghfoods/
 
 ---
 
